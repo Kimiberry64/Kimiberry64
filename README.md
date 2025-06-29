@@ -7,4 +7,4 @@
 - 💬 Ask me about things
 - 📫 How to reach me: never
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: YOUR MALWARES ARE ASS!!!
+- ⚡ Fun fact: YOUR MALWARES ARE ASS!!! GET OFF THE INTERNET DEPRESSION FAKERS!!!! IK YOUR ALTS, NOW STOP AND GET OFF THE INTERNET ONCE AND FOR ALL!!!!!!
