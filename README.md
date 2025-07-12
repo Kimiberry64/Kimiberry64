@@ -1,3 +1,5 @@
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=B300F7&width=435&lines=64)](https://git.io/typing-svg)
+
 # About me
 I do software coding, GDI effects, maybe fork some repos in my free time.<br>
 And I use C and C++, May use C# and more coding languages someday.
